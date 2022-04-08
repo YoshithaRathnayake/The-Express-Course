@@ -5,7 +5,7 @@
 # 
 # <img src="The Express Course 2020 (Certificate).jpg">
 #
-> I got this Certificate when I am 13 years old (Grade 8D).
+> I got this Certificate when I was 13 years old (Grade 8D).
 
 #
 #
